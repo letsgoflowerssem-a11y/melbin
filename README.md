@@ -16,7 +16,7 @@
 <br>
 &nbsp;&nbsp;&nbsp;&nbsp;생크림본드 2p(원하는 종류 및 컬러로 선택가능)<br>
 &nbsp;&nbsp;&nbsp;&nbsp;파츠(5천원내에서 자유롭게 선택가능)<br>
-&nbsp;&nbsp;&nbsp;&nbsp;투명 탑로더(가로형, 세로형 선택가능)<br>
+&nbsp;&nbsp;&nbsp;&nbsp;투명 탑로더 2p(가로형1EA, 세로형1EA)<br>
 <br>
 설명 위주의 리뷰보다는<br>
 👉 제작 과정 + 본인 스타일의 응용이 드러나는 후기를 선호합니다.<br>
@@ -52,3 +52,7 @@
 ⚠️ 타 브랜드 언급 시 비교 표현은 지양해주세요<br>
 ⚠️ 허위·과장된 표현은 삼가주세요<br>
 ⚠️ 후기 내 이미지 무단 편집 및 과도한 보정은 지양해주세요<br>
+⚠️ 참고!!!!@!@!@ <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;꼭 탑로더 사용을 제한하지는 않습니다. <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;인테리어소품이나 여러 용도로 활용한 사례를
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;보여주셔도 좋습니다 ^^! 감사합니다:)❤️
