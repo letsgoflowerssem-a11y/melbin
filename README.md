@@ -54,5 +54,5 @@
 ⚠️ 후기 내 이미지 무단 편집 및 과도한 보정은 지양해주세요<br>
 ⚠️ 참고!!!!@!@!@ <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;꼭 탑로더 사용을 제한하지는 않습니다. <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;인테리어소품이나 여러 용도로 활용한 사례를
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;인테리어소품이나 여러 용도로 활용한 사례를<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;보여주셔도 좋습니다 ^^! 감사합니다:)❤️
